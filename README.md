@@ -3,7 +3,7 @@ I’m so epic trust
 
 
 about me !!
-
+(TS IS SO OUTDATED PLS💔💔)
 
 
 soap / roman / sammy / sam / edward (kinnie names work too ^_^ )
